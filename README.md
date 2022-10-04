@@ -1,0 +1,1 @@
+# mengerti.walau.sedikit
